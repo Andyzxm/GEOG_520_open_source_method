@@ -1,1 +1,0 @@
-# GEOG_520_open_source_method
